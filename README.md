@@ -1,0 +1,2 @@
+# gg
+https://discordapp.com/api/webhooks/694352260800708688/WhfWkO45yY7DxZDDOO0SHr1GIN5T0sRbBne1xx14zMS9jRYePvC6fSgqPtMi_XKKTc7B
